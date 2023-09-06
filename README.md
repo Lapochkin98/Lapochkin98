@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lapochkin98
 - 👀 I’m interested in codding
-- 🌱 I’m currently learning in college
+- 🌱 I’m currently learning at college
 - 💞️ I’m looking to collaborate with Steve Jobs
 - 📫 How to reach me in Belarus
 
